@@ -1,2 +1,2 @@
 # Notes
-knowledge record
+knowledge record and sharing for everyone
